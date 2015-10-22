@@ -2,4 +2,4 @@
 A project for our English class.  @HotFireyDeath and @XLegendaryX
 
 ######It's a story about Goku and Frieza.  
-https://bit.ly/gokufrieza1
+https://bit.ly/gokufrieza2
